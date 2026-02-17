@@ -61,6 +61,7 @@ There was a spear coming at him. A cruel-looking spear, coming at him fast with 
 
 ## My Favorite Cover Art For This Book
 
+<img width="1228" height="1345" alt="image" src="https://github.com/user-attachments/assets/cb6c50c1-717c-482e-b498-2a082b8878b3" />
 
 I like this cover because I think it illustrates the pyschosis the Logen experiences when he "transforms" into the Bloody Nine. I also think the other illustrations in this edition really show some great interpretations of moments in the story and some other characters.
 
